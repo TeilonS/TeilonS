@@ -1,5 +1,5 @@
 # 💫 About Me:
-Curso BSI no IFBA.<br>Estou a procura de estágio.<br>
+Curso ADS na Uniasselvi.<br>Estou a procura de estágio.<br>
 
 
 ## 🌐 Socials:
